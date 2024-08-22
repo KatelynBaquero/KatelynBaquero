@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KatelynBaquero
 - 👀 I’m interested in humanitarian work, art, music, nature, & learning everything. 
-- 🌱 I’m currently learning data analytics and web design. 
-- 💞️ I’m looking to collaborate on anything you're willing to coach me in. 
+- 🌱 I’m currently teaching myself data analytics, web design, and business development. 
+- 💞️ I’m looking to collaborate on anything and everything. 
 - 📫 How to reach me...email is best at kamantuna@icloud.com
 - 😄 Pronouns: she/her 
 - ⚡ Fun fact: I have slept in a real igloo. 
